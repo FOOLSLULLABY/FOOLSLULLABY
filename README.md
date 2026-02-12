@@ -3,6 +3,6 @@
 
 Every 'sixer' you see in media, is me in some way. No exceptions.
 
-doubles are fine as long as you watch your tongue.
+doubles are on thin ice, again, no exceptions.
 
 ![IMG_7623](https://github.com/user-attachments/assets/f139b80e-b309-4116-ab50-9775933962be)
