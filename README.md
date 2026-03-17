@@ -1,5 +1,7 @@
 <img width="921" height="213" alt="Untitled499_20260317165117" src="https://github.com/user-attachments/assets/68f89126-ea01-4030-8392-0060c937c362" />
 
+**PARTIAL MAIN:** [@WhenTheSUNdreams](https://github.com/WhenTheSUNdreams)
+
 '^' Greetings!! Just call me whatever fits from this list:
 > '^' 1x, 'keeper, Doom, Fade, Dree, Bagel
 
