@@ -5,7 +5,9 @@
 '^' Greetings!! Just call me whatever fits from this list:
 > '^' 1x, 'keeper, Doom, Fade, Dree, Bagel
 
-> __other 1x1x1x1s iwc__
+> I am mostly seen as; **1x1x1x1**, **Timekeeper**, or **MrDoombringer**.
+> 
+> ***other 1x1x1x1s iwc***
 
  ![cookie-run-cookie-run-ovenbreak](https://github.com/user-attachments/assets/98fdb32d-4865-4f85-97c6-fce482de1285)
  
