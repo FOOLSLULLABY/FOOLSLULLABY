@@ -7,7 +7,7 @@
 
 > I am usually seen as my; **d3rlord3**, **1x1x1x1**, **Timekeeper**, **ERKLING heathcliff**, or **Ishmael** skins.
 > 
-> ***other 1x1x1x1s iwc***
+> ***Doubles of ALL MY KINS; IWC unless stated OTHERWISE.***
 
  ![cookie-run-cookie-run-ovenbreak](https://github.com/user-attachments/assets/98fdb32d-4865-4f85-97c6-fce482de1285)
  
