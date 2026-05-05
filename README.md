@@ -5,9 +5,15 @@
 '^' Greetings!! Just call me whatever fits from this list:
 > '^' 1x, 'keeper, Doom, Fade, Dree, Bagel. Or, if you prefer to call me something else, let me know beforehand!
 
-> The TOP 3 skins you'll see me as are (in no order): ***TIMEKEEPER COOKIE,*** ***1X1X1X1,*** or ***BLIND OBSESSION EGO ISHMAEL***
+The TOP 3 skins you'll see me as are (in no order):
+
+> ***TIMEKEEPER COOKIE,***
 > 
-> ***Other 1x1x1x1s, please IWEC or dni at all.***
+> ***BLIND OBSESSION EGO ISHMAEL,***
+> 
+> ***1X1X1X1***
+> 
+>> ***Other 1x1x1x1s, please IWEC or dni at all.***
 
  ![cookie-run-cookie-run-ovenbreak](https://github.com/user-attachments/assets/98fdb32d-4865-4f85-97c6-fce482de1285)
  
