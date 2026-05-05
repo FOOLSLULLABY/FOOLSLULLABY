@@ -5,7 +5,7 @@
 '^' Greetings!! Just call me whatever fits from this list:
 > '^' 1x, 'keeper, Doom, Fade, Dree, Bagel. Or, if you prefer to call me something else, let me know beforehand!
 
-> I am usually seen as my; **d3rlord3**, **1x1x1x1**, **Timekeeper**, **ERKLING heathcliff**, or **Ishmael** skins.
+> The TOP 3 skins you'll see me as are (in no order): ***TIMEKEEPER COOKIE,*** ***1X1X1X1,*** or ***BLIND OBSESSION EGO ISHMAEL***
 > 
 > ***Other 1x1x1x1s, please IWEC or dni at all.***
 
