@@ -23,7 +23,7 @@ I am never completely stable! However, i'm not gonna force 'you' to interact wit
 > That being said.. I do LOVE hiding/sitting/cuddling, be it with an oomf or not! I am comforted by not being alone, even on games or so!
 
 '^' I'm in several fandoms that dislike eachother, its hell but its kinda funny!
-> _My main fandoms right now are; CROB, ROBLOX MYTHS, and LIMBUS COMPANY._
+> _My main fandoms/interests right now are; CROB, ROBLOX MYTHS, and the PROJECT MOON games. (library of ruina spoilers are not welcome.)_
 
 '^' I am 65% a listener, and 35% a yapper!
 > '^' If you're quiet, I'll be quiet too! If you're loud, i'll do my best to match your energy!
