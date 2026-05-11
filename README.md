@@ -5,13 +5,13 @@
 '^' Greetings!! Just call me whatever fits from this list:
 > '^' 1x, 'keeper, Doom, Fade, Dree, Bagel. Or, if you prefer to call me something else, let me know beforehand!
 
-The TOP 4 skins you'll see me as (in no order):
+The TOP 4 skins you'll see me as:
 
-> ***TIMEKEEPER COOKIE,***
->
 > ***GEBURA***
-> 
+>
 > ***BLIND OBSESSION EGO ISHMAEL,***
+> 
+> ***TIMEKEEPER COOKIE***
 > 
 > ***1X1X1X1***
 > 
@@ -34,7 +34,10 @@ I am never completely stable! However, i'm not gonna force 'you' to interact wit
 
 ![cookie-run-cookie-run-ovenbreak](https://github.com/user-attachments/assets/abc93b70-5fd7-448f-830f-b4bf66ab9083)
 
-'^' My friends >>>>>>> y o u/strangers. Please understand! 
+'^' My friends >>>>>>> y o u/strangers. Please understand!
+>
 >'^' Basic dni, those under 14 are preferred NOT to interact with me! I am NOT a parent!
+>
+>>'^' *If you see people calling me "mama," those are my oomfs AZURE and BEE. Only they can call me anything parental relating.*
 
 <img width="921" height="213" alt="Untitled499_20260317165127" src="https://github.com/user-attachments/assets/f97eaa0a-0338-4fb8-9be9-69de8cf7625d" />
