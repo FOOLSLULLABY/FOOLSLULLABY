@@ -38,6 +38,6 @@ I am never completely stable! However, i'm not gonna force 'you' to interact wit
 >
 >'^' Basic dni, those under 14 are preferred NOT to interact with me! I am NOT a parent!
 >
->>'^' *If you see people calling me "mama," those are my oomfs AZURE and BEE. Only they can call me anything parental relating.*
+>>'^' *If you see people calling me "mama," those are my oomfs AZURE/[@ohMyN1GHTSH4D3](https://github.com/ohMyN1IGHTSH4D3) and BEE/[@m0urn1ngn1ghtsh4des](https://github.com/m0urn1ngn1ghtsh4des). Only they can call me anything parental relating.*
 
 <img width="921" height="213" alt="Untitled499_20260317165127" src="https://github.com/user-attachments/assets/f97eaa0a-0338-4fb8-9be9-69de8cf7625d" />
