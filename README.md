@@ -5,7 +5,7 @@
 '^' Greetings!! Just call me whatever fits from this list:
 > '^' 1x, 'keeper, Doom, Fade, Dree, Bagel. Or, if you prefer to call me something else, let me know beforehand!
 
-The TOP 4 skins you'll see me as:
+'^' The TOP 4 skins you'll see me as:
 
 > ***GEBURA***
 >
@@ -20,7 +20,10 @@ The TOP 4 skins you'll see me as:
  ![cookie-run-cookie-run-ovenbreak](https://github.com/user-attachments/assets/98fdb32d-4865-4f85-97c6-fce482de1285)
  
 # **JUST A HEADS UP!**
-I am never completely stable! However, i'm not gonna force 'you' to interact with care 24/7 since it won't quite matter! I *will* breakdown randomly no matter what is said or done!
+'^' I am never completely stable! However, i'm not gonna force 'you' to interact with care 24/7 since it won't quite matter! I *will* breakdown randomly no matter what is said or done!
+
+'^' I may ALSO be extremely protective over my oomfs. I easily hold grudges against people, and i don't easily forgive.
+
 > I am currently diagnosed with GAD and PTSD! However, i'm looking into getting help for my dizzy spells and random moodswings!
 > That being said.. I do LOVE hiding/sitting/cuddling, be it with an oomf or not! I am comforted by not being alone, even on games or so!
 
