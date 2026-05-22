@@ -9,7 +9,7 @@
 
 > ***GEBURA***
 >
-> ***BLIND OBSESSION EGO ISHMAEL,***
+> ***ISHMAEL (in general),***
 > 
 > ***TIMEKEEPER COOKIE***
 > 
@@ -22,7 +22,7 @@
 # **JUST A HEADS UP!**
 '^' I am never completely stable! However, i'm not gonna force 'you' to interact with care 24/7 since it won't quite matter! I *will* breakdown randomly no matter what is said or done!
 
-'^' I may ALSO be extremely protective over my oomfs. I easily hold grudges against people, and i don't easily forgive.
+'^' I may ALSO be very protective over my oomfs. I easily hold grudges against people, and i don't easily forgive.
 
 > I am currently diagnosed with GAD and PTSD! However, i'm looking into getting help for my dizzy spells and random moodswings!
 > That being said.. I do LOVE hiding/sitting/cuddling, be it with an oomf or not! I am comforted by not being alone, even on games or so!
