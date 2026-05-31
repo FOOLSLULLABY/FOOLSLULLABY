@@ -29,7 +29,7 @@
 > I am currently diagnosed with GAD and PTSD! However, i'm looking into getting help for my dizzy spells and random moodswings!
 > That being said.. I do LOVE hiding/sitting/cuddling, be it with an oomf or not! I am comforted by not being alone, even on games or so!
 
-'^' No, i do NOT SUPPORT FORSAKEN AND IT'S DEVS. I seperate the characters from their creators.
+'^' No, i do NOT SUPPORT FORSAKEN AND IT'S DEVS. I seperate the characters from their creators. I stopped playing after i learned everything. That being said, FANDOM DNIUF or I DO! thank you!
 
 '^' I'm in several fandoms that dislike eachother, its hell but its kinda funny!
 > _My main fandoms/interests right now are; CROB, ROBLOX MYTHS, and the PROJECT MOON games. (library of ruina spoilers are not welcome.)_
