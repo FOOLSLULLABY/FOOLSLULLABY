@@ -3,7 +3,7 @@
 **PARTIAL MAIN:** [@WhenTheSUNdreams](https://github.com/WhenTheSUNdreams)
 
 '^' Greetings!! Just call me whatever fits from this list:
-> '^' 1x, 'keeper, Doom, Fade, Dree, Bagel. Or, if you prefer to call me something else, let me know beforehand!
+> '^' 1x,'keeper, Doom, Fade, Gebura, Bagel. Or, if you prefer to call me something else, let me know beforehand!
 
 '^' The TOP 4 skins you'll see me as:
 
