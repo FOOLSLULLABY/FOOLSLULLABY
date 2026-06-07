@@ -3,7 +3,7 @@
 **PARTIAL MAIN:** [@WhenTheSUNdreams](https://github.com/WhenTheSUNdreams)
 
 '^' Greetings!! Just call me whatever fits from this list:
-- '^' 1x, 'keeper, Doom, Fade, Gebura, Bagel.
+- '^' 1x, Timekeeper, Fade, Gebura, Bagel.
 > While spin-offs (nicknames) of these names are welcome, if you prefer to call me something else, let me know beforehand!
 >  That being said.. anything regarding "1eggs" makes me uncomfortable! Refrain from using it, my friends!
 
